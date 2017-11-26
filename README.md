@@ -1,2 +1,1 @@
-# katsur0
-Repo for personal page
+# sergio gomes (sergioabegomes)
